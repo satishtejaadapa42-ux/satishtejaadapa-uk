@@ -1,4 +1,4 @@
-# Hey Everyone! I'm [satishtejaadapa-uk](https://github.com/satishtejaadapa-ux) <img src="https://github.com/himanshusharma89/himanshusharma89/blob/master/Hi.gif" width="25px">
+# Hey Everyone! I'm [satishtejaadapa](https://github.com/satishtejaadapa) <img src="https://github.com/himanshusharma89/himanshusharma89/blob/master/Hi.gif" width="25px">
 
 
 # 💫 About Me:
